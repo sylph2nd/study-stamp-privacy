@@ -1,1 +1,0 @@
-# study-stamp-privacy
